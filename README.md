@@ -35,7 +35,16 @@ Feel free to explore the code, experiment, and contribute to the advancement of 
 
 Happy coding! 🌾🚀 #MachineLearning #PrecisionAg #CropMapping
 
+![KAaR1oa](https://github.com/hayatkhan20/Precision-Cropland-Mapping-Unveiling-Agricultural-Patterns-with-Machine-Learning/assets/90596429/70e5f03f-4312-4583-bebd-1f53d4b8818e)
+![XcKIjmy](https://github.com/hayatkhan20/Precision-Cropland-Mapping-Unveiling-Agricultural-Patterns-with-Machine-Learning/assets/90596429/b2a15d42-c4ef-418c-b1a0-8100b9ac5a09)
 
 
-![4oTGmTA](https://github.com/hayatkhan20/Precision-Cropland-Mapping-Unveiling-Agricultural-Patterns-with-Machine-Learning/assets/90596429/8de74989-898f-4593-9f31-baef296c7a1a)
+![download (2)](https://github.com/hayatkhan20/Precision-Cropland-Mapping-Unveiling-Agricultural-Patterns-with-Machine-Learning/assets/90596429/3127baf9-7c45-487c-9d2e-67e2a79b97a5)
 
+
+![download](https://github.com/hayatkhan20/Precision![download (4)](https://github.com/hayatkhan20/Precision-Cropland-Mapping-Unveiling-Agricultural-Patterns-with-Machine-Learning/assets/90596429/32154432-0b80-4d77-ade1-699e0dd97656)
+-Cropland-Mapping-Unveiling-Agricultural-Patterns-with-Machine-Learning/assets/90596429/0e3531c6-0d06-496a-b636-bc67da32d37b)
+
+![Picture2 1](https://github.com/hayatkhan20/Precision-Cropland-Mapping-Unveiling-Agricultural-Patterns-with-Machine-Learning/assets/90596429/56ffd95d-7da5-4271-9d34-afd2d3c3921d)
+
+![4oTGmTA](https://github.com/hayatkhan20/Precision-Cropland-Mapping-Unveiling-Agricultural-Patterns-with-Machine-Learning/assets/90596429/e6c9059f-af54-4dc8-91d4-0809c2318ff0)
