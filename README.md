@@ -34,3 +34,8 @@ While the models performed exceptionally well overall, future work could involve
 Feel free to explore the code, experiment, and contribute to the advancement of precision cropland mapping!
 
 Happy coding! 🌾🚀 #MachineLearning #PrecisionAg #CropMapping
+
+
+
+![4oTGmTA](https://github.com/hayatkhan20/Precision-Cropland-Mapping-Unveiling-Agricultural-Patterns-with-Machine-Learning/assets/90596429/8de74989-898f-4593-9f31-baef296c7a1a)
+
